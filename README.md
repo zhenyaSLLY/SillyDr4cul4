@@ -9,7 +9,6 @@
 FAVORITE BANDS ; B͏a͏z͏o͏o͏k͏a͏ // P͏a͏r͏a͏z͏i͏t͏i͏ // 
                  T͏h͏e͏ N͏e͏i͏g͏h͏b͏o͏r͏h͏o͏o͏d͏
                  
-FAVORITE ARTIST ; 𝐄𝐦𝐢𝐧𝐞𝐦 | 𝐈𝐬𝐚𝐛𝐞𝐥 𝐋𝐚𝐑𝐨𝐬𝐚
-                  𝐂𝐚𝐦𝐢𝐥𝐚 𝐂𝐚𝐛𝐞𝐥𝐥𝐨 | 𝐌𝐞𝐥𝐚𝐧𝐢𝐞 𝐌𝐚𝐫𝐭𝐢𝐧𝐞𝐳
-                  𝐃𝐨𝐣𝐚 𝐂𝐚𝐭
-😜✌️
+FAVORITE ARTIST ; 𝐄𝐦𝐢𝐧𝐞𝐦 |
+𝐂𝐚𝐦𝐢𝐥𝐚 𝐂𝐚𝐛𝐞𝐥𝐥𝐨 | 𝐌𝐞𝐥𝐚𝐧𝐢𝐞 𝐌𝐚𝐫𝐭𝐢𝐧𝐞𝐳
+𝐃𝐨𝐣𝐚 𝐂𝐚𝐭 
