@@ -38,3 +38,8 @@ FAVORITE ARTIST ; 𝐄𝐦𝐢𝐧𝐞𝐦 | 𝐂𝐚𝐦𝐢𝐥𝐚 𝐂𝐚�
 DNI -> Wilbur Fans/ Dteam
 
 
+VISIT MY STRAW PAGE 
+
+https://sillydr4cul4.straw.page/
+
+
