@@ -48,4 +48,8 @@ HAZBIN HOTEL || HELLUVABOSS INFO
 
 https://sillydracula.straw.page
 
+JUJUTSU KAISEN INFO
+
+https://draculasilly.straw.page
+
 
