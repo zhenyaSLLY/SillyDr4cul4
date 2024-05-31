@@ -50,6 +50,6 @@ https://sillydracula.straw.page
 
 JUJUTSU KAISEN INFO
 
-https://draculasilly.straw.page
+https://dr4cul4.straw.page
 
 
