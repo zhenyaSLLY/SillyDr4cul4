@@ -4,4 +4,5 @@
 
 https://dr4cul4.straw.page
 
+https://idiotakihiko.straw.page
 
