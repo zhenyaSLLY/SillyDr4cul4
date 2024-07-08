@@ -1,5 +1,4 @@
-8 》》 𝐃𝐑𝐀𝐂𝐔𝐋𝐀 || 𝐃𝐑𝐀𝐂 ⤍ 9:02  
+8 》》 𝐃𝐑𝐀𝐂𝐔𝐋𝐀 || 𝐃𝐑𝐀𝐂 ⤍ 2.09
 
-
-https://idiotakihiko.straw.page
+https://sillydracula.straw.page
 
