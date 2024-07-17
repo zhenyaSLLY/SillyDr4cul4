@@ -1,4 +1,3 @@
-8 》》 𝐃𝐑𝐀𝐂𝐔𝐋𝐀 || 𝐃𝐑𝐀𝐂 ⤍ 2.09
+8 》》 𝐃𝐑𝐀𝐂𝐔𝐋𝐀 || 𝐃𝐑𝐀𝐂 ⤍ 2:09
 
-https://sillydracula.straw.page
-
+https://sillydr4cul4.straw.page
